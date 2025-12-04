@@ -1,3 +1,0 @@
-# cardputer
-# cardputer
-# cardputer
